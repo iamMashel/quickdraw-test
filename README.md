@@ -1,1 +1,2 @@
-Quickdraw earned í¿†
+Quickdraw earned ï¿½ï¿½ï¿½
+Triggering  ğŸ¹
